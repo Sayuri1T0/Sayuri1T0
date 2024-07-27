@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sayuri1T0
-- 📚 Attending the fifth semester of Business Administration (evening) at the University of São Paulo
+- 📚 Attending the sixth semester of Business Administration at the University of São Paulo
 - 📊 Investor Relations Intern at Genoa Capital
 
 <!---
